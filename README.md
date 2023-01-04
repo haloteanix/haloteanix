@@ -1,5 +1,7 @@
 - 👋 Hi, I’m @haloteanix
-- 👀 I’m interested in gaming, old electronics and the Android software.
+- 👀 I’m interested in gaming, old electronics, Windows and the Android software.
 - 📫 Socials: 
   Instagram: @halo.teanix
-  TikTok: @leafclover.__
+  TikTok: @akerisbtw
+  Backup TikTok: @backerisbtw
+  Teck TikTok: @1sileo
