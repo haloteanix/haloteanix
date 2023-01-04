@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @haloteanix
----
 - 👀 I’m interested in gaming, old electronics, Windows and the Android software.
 ---
 - 📫 Socials: 
